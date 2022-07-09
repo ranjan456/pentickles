@@ -1,3 +1,3 @@
 # pentickles
 
-We are writers my love we don't cry we bleed
+We are writers my love we don't cry we bleed on paper
